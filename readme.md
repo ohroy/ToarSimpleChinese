@@ -11,7 +11,7 @@
 
 ## 预览
 
-![](https://pic.zz173.com/auto/屏幕截图 2021-10-08 164327.png)
+![](https://pic.zz173.com/auto/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE%202021-10-08%20164327.png)
 
 ![](https://pic.zz173.com/auto/20211008174919.png)
 
